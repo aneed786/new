@@ -1,1 +1,1 @@
-I'm aneed kham
+I'm aneed khan
